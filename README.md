@@ -1,5 +1,3 @@
- ## me and my wifey -3-
- <img width="2881" height="2339" alt="Image" src="https://github.com/user-attachments/assets/bdc7332d-51f6-4204-8b91-63045ee2a1f2" />
-  by me~
+<img width="2099" height="2100" alt="Image" src="https://github.com/user-attachments/assets/bbc44233-1418-421a-8fc2-93f5532f807b" />
 
  
